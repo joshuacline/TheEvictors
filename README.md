@@ -7,5 +7,7 @@
 - 6. Barking back at the torture chamber. Feeling reckless? Don't give a fck? They'll contact the authorities with fake stories, and get you put on a watch list for the mere act of defending yourself.
 - 7. Home is where the heart is. Fancy being a local celebrity? Too late. They're dumping manufactured dirt all over you in your town's online pages. Nothing beats being recognized by people you don't know on the street.
 - 8. Currently happy with your career? How about your living situation? They are potentially targeting your work, coworkers, landlord, roommates, even your neighborhood. Don't forget to check the NextDoor app.
-- 9. Care for a date? Good thing I don't. They're making fake profiles, complete with nastified A.I. generated imagery.
-- 11. What are humiliation rituals and what do they look like?
+- 9. Care for a date? Good thing I don't. What if I told you some of those dates you went on were set up. They want to break you. Besides, they're making fake profiles complete with nastified A.I. generated imagery in your name.
+- 10. Ears ringing, memory lapses, foggy headed? These things are now backpack sized. Time to get the hell out of Havana.
+- 11. Noticing patterns over periods of time? The instinct is to look within oneself. However, there may be cases where you've been living in a plastic reality.
+- 12. What are humiliation rituals and what do they look like?
