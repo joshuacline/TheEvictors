@@ -9,5 +9,6 @@
 - 8. Currently happy with your career? How about your living situation? They are potentially targeting your work, coworkers, landlord, roommates, even your neighborhood. Don't forget to check the NextDoor app.
 - 9. Care for a date? Good thing I don't. What if I told you some of those dates you went on were set up. They want to break you. Besides, they're making fake profiles complete with nastified A.I. generated imagery in your name.
 - 10. Ears ringing, memory lapses, foggy headed? These things are now backpack sized. Time to get the hell out of Havana.
-- 11. Noticing patterns over periods of time? The instinct is to look within oneself. However, there may be cases where you've been living in a plastic reality.
-- 12. What are humiliation rituals and what do they look like?
+- 11. Internet oddities: Search results are in a foreign language? Full bars today, gone tomorrow? Mobile cell towers can fit in a pocket, the car parked next to you, or even that strange box truck that's been down the street. Their traffic is now yours, and vice versa.
+- 12. Noticing patterns over periods of time? The instinct is to look within oneself. However, there may be cases where you've been living in a plastic reality.
+- 13. What are humiliation rituals and what do they look like?
