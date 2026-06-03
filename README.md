@@ -10,5 +10,6 @@
 - 9. Care for a date? Good thing I don't. What if I told you some of those dates you went on were set up. They want to break you. Besides, they're making fake profiles complete with nastified A.I. generated imagery in your name.
 - 10. Ears ringing, memory lapses, foggy headed? These things are now backpack sized. Time to get the hell out of Havana.
 - 11. Internet oddities: Search results are in a foreign language? Full bars today, gone tomorrow? Mobile cell towers can fit in a pocket, the car parked next to you, or even that strange box truck that's been down the street. Their traffic is now yours, and vice versa.
-- 12. Noticing patterns over periods of time? The instinct is to look within oneself. However, there may be cases where you've been living in a plastic reality.
-- 13. What are humiliation rituals and what do they look like?
+- 12. Worst case scenerio: What if your name or facsimile had been used to engage somebody else's enemies, or post anti-govt material online? Even worse, how's about in a foreign country? You could dealing with a situation where you've been used as live bait, while the targetors keep their hands clean. 
+- 13. Noticing patterns over periods of time? The instinct is to look within oneself. However, there may be cases where you've been living in a plastic reality.
+- 14. What are humiliation rituals and what do they look like?
